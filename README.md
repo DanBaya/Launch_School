@@ -1,2 +1,2 @@
 # README #
-"BING BONG!" - Stewie Griffen
+"BING BONG!" - Chinease family guy
