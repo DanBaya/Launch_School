@@ -1,2 +1,2 @@
 # README #
-"BING BONG!" - Chinease family guy
+"BING BONG!" - Mr.Washee Washee
